@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mohammadmujahed
+- 👀 I’m interested in Techonolgy
+- 🌱 I’m currently Working as Associate System Engineer / Linux At Optimiza
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me mohammad_nihao@hotmail.com
